@@ -15,10 +15,14 @@ spring rec lacrosse for youth players across northeast Florida.
 ## Member clubs
 
 - Amelia Island Hammerheads
+- Bold City Eagles
+- Bulldogs LC
 - Creeks Youth Lacrosse
 - Fleming Island Lacrosse Club
 - Jax Lax
+- NPAA Panthers
 - Ponte Vedra Riptide Lacrosse
+- Redhawks
 
 ## Org legal
 
